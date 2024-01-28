@@ -78,3 +78,14 @@
 - 地址28：https://suying456.com
 - 地址29：https://suying55.net
 - 地址30：https://suying456.net
+
+  2024年1月28日更新
+  请务必保存下方备用网址，以防失联
+地址1：https://sy66a88.com（已被墙）
+地址2：https://sy77a12.com
+地址3：https://suying818.xyz（已被墙）
+地址4：https://suying810.net
+地址5：https://suying811.com（已被墙）
+地址6：https://suying828.com
+地址7：https://suying200.org
+地址8：https://suying82.com
