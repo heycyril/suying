@@ -89,3 +89,21 @@
 - 地址6：https://suying828.com
 - 地址7：https://suying200.org
 - 地址8：https://suying82.com
+
+  2024年2月19日更新
+- 请发送任意内容邮件到：suying6288@gmail.com 获-
+- 取最新的网站地址，请直接发送一次，后期有需要的时-
+- 候，查找邮件即可。
+- 日常工单24小时内回复。AFF和退款工单48小时内回复。
+- 微信支付请用摄像头扫码，如将二维码保存到相册支付会
+- 失败。
+
+- 请务必保存下方备用网址，以防失联
+- 地址1：https://sy66a88.com（已被墙）
+- 地址2：https://sy77a12.com
+- 地址3：https://suying818.xyz（已被墙）
+- 地址4：https://suying810.net
+- 地址5：https://suying811.com（已被墙）
+- 地址6：https://suying828.com
+- 地址7：https://suying200.org
+- 地址8：https://suying82.com
