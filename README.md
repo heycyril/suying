@@ -120,3 +120,24 @@
 - 地址6：https://suying828.com
 - 地址7：https://suying200.org
 - 地址8：https://suying82.com
+  20240517更新
+- 请发送任意内容邮件到：suying6288@gmail.com 获取最新的网站地址，请直接发送一次，后期有需要的时候，查找邮件即可。
+-日常工单24小时内回复。AFF和退款工单48小时内回复。微信支付请用摄像头扫码，如将二维码保存到相册支付会失败。
+-请务必保存下方备用网址，以防失联
+-最新地址
+-地址1：https://sy95.xyz
+-地址2：https://sy69.xyz
+-https://suying770.com/auth/register
+-其他地址（需翻墙打开）
+-地址1：https://sy66a88.com
+-地址2：https://sy77a12.com
+-地址3：https://suying818.xyz
+-地址4：https://suying810.net
+-地址5：https://suying811.com
+-地址6：https://suying828.com
+-地址7：https://suying200.org
+-地址8：https://suying82.com
+-美区苹果账号购买地址：http://hjid888.com
+-备注：账号已购买小火箭，购买后会发货|账号|密码|密保|绑定邮箱|质保10天。
+-售后：购买页详细（仅限苹果|奈飞账号，机场问题别找人家不管）
+-
