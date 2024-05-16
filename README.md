@@ -127,6 +127,7 @@
 - 最新地址
 - 地址1：https://sy95.xyz
 - 地址2：https://sy69.xyz
+- https://suying770.com/auth/register
 - 其他地址（需翻墙打开）
 - 地址1：https://sy66a88.com
 - 地址2：https://sy77a12.com
